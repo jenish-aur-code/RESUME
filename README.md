@@ -1,2 +1,2 @@
 # RESUME
-All new updatee Resume uploading in this REPO.
+All new updated Resume uploading in this REPO.
